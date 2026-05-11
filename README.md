@@ -11,7 +11,7 @@ Cinna (mainly .) , rotten , moon , cinnamon
 * berriromantic - aego—aroace
 * Trust and anger issues
 
-## . comfort characters // yumes
+## . comfort characters / yumes
 
 * black forest cookie
 * abyss monarch cookie
@@ -32,4 +32,4 @@ Cinna (mainly .) , rotten , moon , cinnamon
 ## . if you wanna be friends
 
 * Discord: " rottencinnamon. "
-* Roblox : r_ockstar86
+* Roblox : " r_ockstar86 "
