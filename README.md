@@ -1,6 +1,6 @@
 ![wow](https://files.catbox.moe/ppq6qn.png)
 
-# 🐴 Hey, I'm [Your Name]!
+# . names
 
 Welcome to my GitHub profile!
 
